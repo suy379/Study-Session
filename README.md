@@ -1,1 +1,1 @@
-# Study+Session #Growth Hackers
+# Study+Session 
